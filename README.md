@@ -12,7 +12,7 @@ curto estuda .
 ![](https://media.tenor.com/tWlDk2LpFoEAAAAi/goal-playing-ball.gif)
 
 e o meu gato sumil da minha casa 
-![](https://media.tenor.com/VWhMBkln0o4AAAAd/cats-cat.gif)
+![](https://media.tenor.com/wL59aqQiwzAAAAAd/cat-kitty.gif)
 
 gosto de escuta musica alta que eu adoro e metalica e  rock,banderao,
 adoro usa anel de cavera .
